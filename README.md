@@ -1,1 +1,1 @@
-# Sanal-NC
+# SANAL İNC
